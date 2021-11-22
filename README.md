@@ -1,3 +1,8 @@
+```javascript
+> 1 + 2
+3
+```
+
 <!---
 - 👋 Hi, I’m @moeenkhurram
 - 👀 I’m interested in ...
