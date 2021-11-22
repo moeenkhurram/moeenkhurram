@@ -1,1 +1,1 @@
-![](https://d6f6d0kpz0gyr.cloudfront.net/uploads/images-archive/Blog/Gifs/coding.gif)
+![](https://miro.medium.com/max/1400/1*vJjJ3Mdok6Rvxx85IIRqBQ.gif)
