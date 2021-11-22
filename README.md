@@ -1,1 +1,1 @@
-![](https://miro.medium.com/max/1400/1*poBV7ex8L0Ss1Sr5n3HH3g.gif)
+![](https://user-images.githubusercontent.com/59828681/142947062-9e886caf-327e-4f8c-ae35-37b6fdb93777.png))
